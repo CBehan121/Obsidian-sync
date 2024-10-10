@@ -109,9 +109,17 @@
           "type": "outline",
           "state": {}
         }
+      },
+      {
+        "id": "ebff5987888a23c5",
+        "type": "leaf",
+        "state": {
+          "type": "git-view",
+          "state": {}
+        }
       }
     ],
-    "currentTab": 0
+    "currentTab": 3
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -124,7 +132,7 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "67441f31ede8c6f9",
+  "active": "ebff5987888a23c5",
   "lastOpenFiles": [
     "Plant Book/Pests/Pests.md",
     "Plant Book/All house plants.md",

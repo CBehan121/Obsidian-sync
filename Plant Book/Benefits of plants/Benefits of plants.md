@@ -1,0 +1,7 @@
+- Increased reaction times around 12%
+- Reduce stress and blood pressure
+- Can help to reduce error rates of tasks such as searching for information online
+- Viewing red-flowering geraniums significantly enhanced stress recovery of high-stress induced females, as indicated by greater recovery in electroencephalograph beta (21-27 Hz) and electrodermal activities.
+- Can help us through difficult times. Can hold hands in ice water for longer when surrounded by plants
+- more positive physiological responses evidenced by lower systolic blood pressure and heart rate, lower ratings of pain, anxiety, and fatigue, and more positive feelings and higher satisfaction about their rooms
+- positive psychological responses evidenced by lower ratings of irritability, fatigue and anxiety, higher scores of vigor compared with the other groups

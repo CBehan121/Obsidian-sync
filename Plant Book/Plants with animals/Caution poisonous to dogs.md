@@ -1,0 +1,32 @@
+[[Dogs]]
+- Alocasia
+- Aloe vera
+- Amaryllis
+- Arrowhead plant
+- Asparagus fern
+- Begonia
+- Bird of paradise (strelitzia)
+- Cactus
+- Cyclamen
+- Desert rose
+
+- Dracaena
+- Dumb cane (dieffenbachia)
+- Elephant ear (caladium)
+- Eucalyptus
+- Ficus Benjamina
+- Flamingo flower
+- Gardenia
+- Geranium
+- Ivy
+- Jade
+
+- Kalanchoe
+- Lily
+- Oleander
+- Philodendron
+- Pothos/devil's ivy
+- Sago palm
+- Schefflera
+- Ti plant
+- ZZ plant

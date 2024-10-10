@@ -1,0 +1,14 @@
+[[Pests]]
+[[Plant care]]
+
+There are a number of best practices that you can do to reduce or eliminate the potential for pest infestation in the home. They are by no means "no-fail" solutions, as many plant pests can easily go undetected by the eye, but they are typically sufficient and proactive approaches to help ensure your plants stay healthy.
+
+1. **Inspect a plant before you buy it.** There have been a number of occasions where I noticed insects on a plant. If you can and do identify insects, you should tell the plant shop owner or greenhouse owner so that they can quarantine the plant and ensure it doesn't get sold to anyone else.
+    
+2. **Use clean pots and potting soil.** If you're bringing home a new plant and are putting it in a new pot, make sure that pot was cleaned thoroughly with a diluted soap or bleach solution to ensure there were no disease-carrying agents. Same goes for soil: I typically always get new soil for my plants because there is no telling if there are any leftover eggs overwintering in the soil from previous pests.
+    
+3. **Remove any potential pests from the actual soil ball of the plant.** Sometimes the plant you bought will have some interesting Arthropods _within_ its own soil. I've often seeing pillbugs (called roly-polys), sowbugs, and millipedes, all which prefer damp, dark, moist environments. These generally won't harm plants, as they largely eat decaying organic material, but in the case of millipedes, they may eat bulbs and tubers. A long while ago, I bought a plant from the flower district in Manhattan and it was infested with millipedes. A natural way to reduce millipede population, if you think it is a problem, is spreading Diatomaceous earth on the soil, which are fossilized diatoms that actually cut the millipedes, or by using nematodes, which over time, breed and replicate within the millipede, eventually killing it. I would say that if you have a few millipedes in your soil, no biggie, but if you see them, you can capture them and set them loose outside.
+    
+4. **Isolate your plant from other plants for a few days to a couple weeks.** If you want to be extra careful, be sure to isolate your plant for a few days from your other plants, inspecting its leaves and stems everyday. If you think everything checks out, then move it into your intended space.
+    
+5. **Don't let other plant's leaves touch the leaves of your new plant.** This one is the hardest to do—particularly in my home—if not next to impossible. However, some pests, like scale, can't spread unless they have a "bridge" to get across to the next leaf. 🌿

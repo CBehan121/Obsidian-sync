@@ -1,0 +1,82 @@
+- **Barberton Daisy**  [[Air purifying plants]]
+- **Peace Lily** (Spathiphyllum wallisii, White sails)
+- **Aloe Vera** (Liliaceae family) [[Air purifying plants]] [[Kitchen]]
+- **Weeping Fig** (Ficus benjamina, Benjamin tree, Java fig, small-leaved rubber plant, tropic laurel, Indian rubber plant)
+- **Boston Fern** [[Air purifying plants]]
+- **Spider Plant** [[Air purifying plants]] [[Plants for new people]]
+- **Dracaena** (Corn plant, Dragon tree, lucky bamboo) [[Air purifying plants]] [[Pest resistant plants]] [[Danger Poisonous to dogs]] [[Danger Poisonous to cats]]
+- **Parlour Palm** (Chamaedorea elegans, Bamboo Palm) [[Air purifying plants]] [[Sitting Rooms]]
+- **Chrysanthemum** [[Air purifying plants]] [[Sitting Rooms]] [[Kitchen]]
+- **English Ivy** (Hedera Helix, common ivy) [[Air purifying plants]] [[Bathrooms]]
+- **Snake Plant** (Sansevieria, Mother-in-law’s tongue, Viper’s bowstring hemp) [[Air purifying plants]][[Bedrooms]] [[Pest resistant plants]]
+- **Broad Lady Palm** [[Air purifying plants]] [[Bathrooms]] [[Kitchen]]
+- **Red-Edged Dracaena / Dragon Tree**[[Air purifying plants]]
+- **Chinese Evergreen** (Aglaonema)[[Air purifying plants]] [[Bathrooms]] [[Pest resistant plants]] [[Danger Poisonous to dogs]] [[Danger Poisonous to cats]]
+- **Devil's Ivy / Pothos** (Scindapsus, Devil’s Ivy, Taro vine, Ivy arum) [[Air purifying plants]] [[Bathrooms]] [[Kitchen]] [[Sitting Rooms]] [[Plants for new people]]
+- **Kentia Palm** [[Air purifying plants ]] [[Safe for dogs]] [[Safe for cats]]
+- **Rubber Plant** (Ficus, Benjamin tree, weeping fig) 
+- **Pineapple Plant** [[Air purifying plants]]
+- **Flamingo Lily** (Anthurium, Flamingo flower)[[Air purifying plants]]
+- **Kimberly Queen Fern** [[Air purifying plants]] [[Plants for new people]]
+- **Dumb Cane** (Dieffenbachia, all varieties)
+- **Fiddle Leaf Fig** (Ficus lyrata, Banjo fig)
+- **Fishtail Palm** (Caryota mitis)
+- **Gladioli Bulb** (sword lily)
+- **Homalomena Rubescens** (Red shield plant, Queen of hearts)
+- **Hyacinths Bulb**
+- **Iron Cross Begonia** (Begonia masoniana)
+- **Jade Plant** (Crassula ovata, money plant)
+- **Kalanchoe** (Mother of thousands, panda plant, flaming Katy)
+- **Pencil Cactus** (Cactus euphorbia tirucalli, Cactus spurge)
+- **Philodendron** (scandens, Heart leaf, Sweetheart plant, Araceae, Monstera)
+- **Poinsettia** (euphorbia, Christmas flower)
+- **Polyscias Fabian** (Dinner plate aralia, Ployscias aralia)
+- **Schefflera** (Umbrella tree, octopus tree)
+- **Tradescantia** (Wandering Jew plant, Speedy Henry)
+- **Yucca** (Asparagaceae family, Agavoideae)
+- **Zamioculcas Zamiifolia** (ZZ plant, Zanzibar gem, Fern arum)
+- **Agave** (Century plant)
+- **Alocasia** (Elephant ear, Dwarf taro)
+- **Amaryllis** (Hippeastrum)
+- **Ant Plant** (Hydnophytum papuanum, Maze plant)
+- **Arrow Head Vine** (African evergreen)
+- **Asparagus Fern** (feathery asparagus)
+- **Bird of Paradise** (Strelitzia reginae/nicolai, Crane flower)
+- **Begonia**
+- **Brunfelsia Pauciflora** (Kiss me quick; yesterday, today and tomorrow; Brazil raintree)
+- **Caladium** (Elephant’s ears)
+- **Calla Lily** (Zantedeschia, arum lily, trumpet lily)
+- **Castanospermum** (Moreton bay chestnut, black bean, Australian chestnut)
+- **Cheese Plant** (Monstera, Indian ivy)
+- **Clusia** (autograph tree)
+- **Coleus** (Solenostemon, Indian borage, stinging thyme)
+- **Cyclamen**
+- **Bromeliads** (Guzmania, Vriesea Tillandsia Aechmea and Ananas) [[Pest resistant plants]] [[Safe for dogs]] [[Safe for cats]] 
+- Aspidistra Elatior (bar room plant, cast iron plant) [[Safe for dogs]] [[Safe for cats]] [[Pest resistant plants]]
+- Cissus (**rex begonia vine, veldt grape, winged treebine or adamant creeper**) [[Safe for cats]] [[Safe for dogs]] [[Pest resistant plants]]
+- Coleus include (spurflower, flybush, hedgehog flower and hullwort) [[Pest resistant plants]] [[Caution poisonous to cats]] [[Caution poisonous to dogs]]
+- Mosquito Plant or Citronella Plant [[Pest resistant plants]] [[Danger Poisonous to dogs]] [[Danger Poisonous to cats]]
+- **oregano** [[Danger Poisonous to cats]] [[Safe for dogs]] 
+- **basil** [[Safe for cats]] [[Safe for dogs]]
+- **rosemary** [[Pest resistant plants]] [[Safe for cats]]  [[Safe for dogs]]
+- **Catnip** [[Can be eaten by cats]] [[Safe for cats]] [[Can be eaten by dogs]]
+- Adiantum (Maidenhair fern) [[Safe for cats]] [[Safe for dogs]] 
+- Money Tree (Pachira aquatica) (water chestnut, Guiana chestnut and Malabar chestnut)  [[Safe for cats]] [[Safe for dogs]] [[Air purifying plants]]
+- Banana Plant (Musa Dwarf Cavendish) [[Safe for cats]] [[Safe for dogs]] [[Air purifying plants]]
+- Orchids [[Safe for cats]] [[Safe for dogs]]
+- Peperomia (baby rubberplant, American rubber plant, or pepper face) [[Safe for cats]] [[Safe for dogs]] [[Air purifying plants]]
+- **Phlebodium Aureum** (Harefoot Palm, Golden Polypody) [[Safe for dogs]] [[Safe for cats]] [[Air purifying plants]]
+- Sedum (stonecrops) [[Safe for dogs]] [[Safe for cats]] [[Air purifying plants]]
+- String of hearts (**bushman's pipevine, lantern flower, necklace vine, parachute flower, and wine-glass vine**) [[Safe for cats]] [[Safe for dogs]]
+- Stromanthe (Tristar Triostar Tricolor) [[Safe for dogs]] [[Safe for cats]]
+- Calathea (Zebra plant, Peacock plant, Rattle snake plant, prayer plant)   [[Safe for cats]] [[Safe for dogs]] 
+- **Aeschynanthus Japhrolepsis** (Lipstick Plant) [[Safe for dogs]] [[Safe for cats]]
+- **Chinese Money Plant** (Alocasia portodora, Pilea Peperomioides, Pancake Plant) [[Safe for dogs]] [[Safe for cats]]
+- **Christmas Cactus** (Schlumbergera, Easter Cactus, November Cactus) [[Safe for cats]] [[Safe for dogs]]
+- **Coconut Palm** (Cocus nucifera) [[Safe for cats]] [[Safe for dogs]]
+- Crocodile Fern [[Safe for cats]] [[Safe for dogs]]
+- Delosperma (trailing Iceplant, hardy iceplant or pink carpet) [[Safe for cats]] [[Safe for dogs]]
+- Delosperma echinatum [[Safe for cats]] [[Safe for dogs]]
+- Fishbone Cactus [[Safe for dogs]] [[Safe for cats]]
+- Hoya Carnosa [[Safe for dogs]] [[Safe for cats]]
+- 
